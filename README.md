@@ -6,4 +6,4 @@ Homepage threads on /g/, what can I say?
 If you wish to take it, feel free. Not even going to license it, just go ahead and take it. Though of course, I'd apprecate having my name as the author.
 # Image
 Without the search bar open...
-![home](https://a.pomf.se/uuijit.png)
+![home](https://a.pomf.se/anwits.png)
