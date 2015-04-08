@@ -1,4 +1,4 @@
-# This is a homepage I wrote a while ago, and I felt like sharing.
+# This is a homepage I wrote a while ago, and felt like sharing.
 Therefore, here you go!
 # Influence
 Homepage threads on /g/, what can I say?
